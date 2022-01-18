@@ -1,4 +1,4 @@
-### OIeee, sou Akira Mendes 👋
+### Oieee, sou Akira Mendes 👋
 
 - 🤓 Estudante de programação
 - 👩‍💻 Trader de derivativos 
